@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ha9211
-- 👀 I’m interested dinosaurs
+- 👀 I’m interested in dinosaurs
